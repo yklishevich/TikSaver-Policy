@@ -1,4 +1,4 @@
-#Terms of Use
+# Terms of Use
 You can subscribe for this app to get access to premium features and unlimited content.
 
 Subscription options can be: 1-week with 3-day trial, 1-month with 3-day trial or 1-year with 3-day trial.
